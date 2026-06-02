@@ -1,4 +1,4 @@
-# 
+# Instantáneo ftx trading bot preajustes para Mac OS | Exclusivo ftx trading bot preajustes para PC Windows. Con gestión de apalancamiento y generación de señales — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
